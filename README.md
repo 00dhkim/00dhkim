@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 
 ## CV
 
-https://www.notion.so/CV-15486731ee9b4d5897f4ef9a1e312c3b
+http://00dhkim.me/
